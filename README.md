@@ -1,1 +1,0 @@
-# MoneySwipeAD.github.io
